@@ -3,7 +3,7 @@
 
 - 📫 How to reach me - Gmail: arturpushkov1@gmail.com Telegram: https://t.me/pArtour
 
-- 👨🏻‍💻My website arturpushkov.com
+- 👨🏻‍💻My website: https://arturpushkov.com
 
 
 <!---
