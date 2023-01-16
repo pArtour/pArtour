@@ -10,7 +10,6 @@ In the meantime, feel free to check out my mad skills in:
 So, if you need help with anything, feel free to contact me. But, be warned, I'm also a bit of a comedian and tend to make bad jokes.
 
 How to reach me - Gmail: arturpushkov1@gmail.com Telegram: https://t.me/pArtour
-My website: https://arturpushkov.com
 
 
 <!---
